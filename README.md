@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ArcB1213
-- 👀 I’m interested in riding bike, swimming, and playing video games.
+- 👀 I’m interested in riding bike🚴 , swimming🏊 , and playing computer games🎮.
 - 🌱 I’m currently learning Computer Science and Technology in Tongji University.
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ... twitter: @Quasar89217863
